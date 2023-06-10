@@ -1,3 +1,1 @@
-# References
-
-* octocat 1 😈
+Refere here for references O_O
